@@ -9,8 +9,6 @@ I am interested in learning software development, programming, and emerging tech
 - Computer Networks
 - DBMS
 
-Career Goal:
-To start my career in the IT industry and continuously improve my technical and professional skills.
-
-Connect with me:
 LinkedIn:www.linkedin.com/in/jayadeepika-peddacherka-a80238342
+
+Looking for opportunities to learn, grow, and contribute in the IT industr
